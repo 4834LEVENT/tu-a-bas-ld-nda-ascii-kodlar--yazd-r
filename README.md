@@ -1,0 +1,1 @@
+# tu-a-bas-ld-nda-ascii-kodlar--yazd-r
